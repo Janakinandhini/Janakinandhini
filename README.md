@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **janakinandhini18@gmail.com**
 
-- 📄 Know about my experiences [Janaki Nandhini Resume 2024.pdf](https://github.com/Janakinandhini/Janakinandhini/blob/main/resume/Janaki%20Nandhini%20Resume%20-%202024.pdf)
+- 📄 Know about my experiences [Janaki Nandhini Resume 2024.pdf](https://github.com/Janakinandhini/Janakinandhini/blob/main/resume/Janaki%20Nandhini%20-2026%20Resume~.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
